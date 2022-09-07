@@ -15,6 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-wondering KWANGYA
-
-swallowed by Black Mamba
+my favorite emoji: 🥰💖🤔🧊
