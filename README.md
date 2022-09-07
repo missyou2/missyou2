@@ -15,5 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-wondering KWANGYA\n
+wondering KWANGYA
+
 swallowed by Black Mamba
